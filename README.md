@@ -64,8 +64,7 @@
 
 ## 📬 Connect With Me  
 - 💼 [LinkedIn](#)  
-- ✉️ Email: gslbmounika@example.com  
-- 📝 Portfolio (coming soon)  
+- ✉️ Email: gpadmavathi82@gmail.com  
 
 ---
 ⭐️ *Pinned repositories show my best projects. Check them out below!*
